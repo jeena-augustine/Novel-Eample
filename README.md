@@ -1,4 +1,4 @@
-# Friends 
+# *Friends* 
 
 Episodes depict the friends' comedic and romantic adventures and career issues, such as Joey auditioning for roles or Rachel seeking jobs in the fashion industry.
 
